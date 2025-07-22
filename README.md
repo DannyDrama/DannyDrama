@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @DannyDrama
-- 👀 I’m interested in technology, personal development, Outdoors,Street Figther 5
-- 🌱 I’m currently learning .... Cyber Security
+- 👋 Hi, I’m @DannyRelentless
+- 👀 I’m interested in technology, Personal Development, Business, Outdoors.  
+- 🌱 I’m currently learning .... CyberSecurity
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...DM me Twitter @dannydrama 
 
